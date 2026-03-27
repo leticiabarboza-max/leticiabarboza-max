@@ -4,7 +4,7 @@
 
 🎓 Estudante da Aprendizagem Industrial em Administração Contratado pela Empresa Seara Alimentos (2025)
 
-🎓 Estudo no Primeiro ano do ensino médio da escola estadual E.E.B Cecília Vivan 2026
+🎓 Estudo no 1º ano do ensino médio da escola estadual E.E.B Cecília Vivan 2026
 
 
 
