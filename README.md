@@ -1,7 +1,9 @@
 # 👋 Olá, eu sou Leticia Barboza
 
 🎓 Estudante da Aprendizagem Industrial de Programador de sistemas da informação.(SENAI) Contratado pela Empresa Grupo Farenzana
+
 🎓 Estudante da Aprendizagem Industrial em Administração Contratado pela Seara Alimentos (2025)
+
 🎓 Estudo no Primeiro ano do ensino médio da escola estadual E.E.B Cecília Vivan 2026
 
 
